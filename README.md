@@ -1,2 +1,2 @@
-# Samta-s-Name
+# Samata-s-Name
 This is for us
